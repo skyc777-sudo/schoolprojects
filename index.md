@@ -1,0 +1,1 @@
+discord and youtube below
